@@ -17,4 +17,4 @@ ${\color{#e3332c}\space my \space essence}$
 
 ![gif alt](https://github.com/inmess07/inmess07/blob/dcd78bbb70199eecf74c9ff9c18f57d9ac23d75a/escaping-abaddon.gif)
 
-${\color{#e3332c}\space farewell}$
+${\color{#fc9a50}\space farewell}$
