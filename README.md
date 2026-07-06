@@ -2,6 +2,10 @@
 
 ---
 
+*hellow stranger!*
+
+![image alt](https://github.com/inmess07/inmess07/blob/eb173d7afff670219a61ee9dad62544cb61e3f54/0aac0300c0eac551c30ae82969737afa.jpg)
+
 <div id="header" align="center">
 
 **my essence**
