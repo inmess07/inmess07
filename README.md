@@ -2,21 +2,31 @@
 
 ---
 
-my ribs breaks under my chest every time i see those sceneries of endless freedom i want to reach some day.
-my doors are shut for everyone to come in, but what do i crave now?
+${\color{#e3332c} \space the \space haze}$
 
-i prefer to wander in those dark woods i choose instead, only by myself
+${\color{#e3332c}\space lingers \space above}$
 
-grief n' shame i carry beyong a ribcage, who would tell?
+${\color{#e3332c}\space the \space pale \space dawning \space arc-}$
 
-my body is lying in a grave, waiting for you to come
 
-take my pale hand in your own, i want you to see what my insides see
+${\color{#e3332c}\space day \space can't \space break \space when \space the \space sun \space has \space burned \space to \space a \space crisp}$
 
-the sky is red now; breath your lungs out
+${\color{#e3332c}\space there \space must \space have \space been \space some \space supernova \space i \space missed}$
 
-humans are like animals. they're always willing to tear your soul apart for rotten fun
+${\color{#e3332c}\space my \space ultimate \space snapshot \space - \space "sky \space overcast"}$
 
+${\color{#e3332c}\space go \space out \space with \space a \space whimper, \space not \space with \space a \space blast-}$
+
+${\color{#e3332c}\space to \space scour \space the \space blanckened, \space soot-covered \space earth}$
+
+${\color{#e3332c}\space to \space cry \space out \space my \space name \space in \space violent \space birth}$
+
+${\color{#e3332c}\space to \space settle \space for \space naught \space and \space settle \space the \space grudge}$
+
+${\color{#e3332c}\space when \space there \space was \space no \space jury, \space i \space was \space the \space judge-}$
+
+
+---
 
 ${\color{#e3332c}\space hellow, \space stranger!}$
 
