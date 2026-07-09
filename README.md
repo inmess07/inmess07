@@ -18,7 +18,7 @@ the sky is red now; breath your lungs out
 humans are like animals. they're always willing to tear your soul apart for rotten fun
 
 
-${\color{#e3332c}\space hellow \space stranger!}$
+${\color{#e3332c}\space hellow, \space stranger!}$
 
 ![image alt](https://github.com/inmess07/inmess07/blob/eb173d7afff670219a61ee9dad62544cb61e3f54/0aac0300c0eac551c30ae82969737afa.jpg)
 
