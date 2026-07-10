@@ -36,8 +36,10 @@ ${\color{#e3332c}\space hellow, \space stranger!}$
 
 </div>
 
-${\color{#e3332c}\space an \space important \space part \space of \space me: \space music \space ofc!}$
-  ${\color{#e3332c}\space some \space of \space the \space most \space lovely \space ones:}$
+
+<img src="https://github.com/inmess07/inmess07/blob/765ac68e0f3d2678a1534ee509f0bda593314521/93b63a0b5db238a981e0d4b5c906ab48.gif" width="30" style="display: inline-block: vertical-align: middle;"/>${\color{#e3332c}\space an \space important \space part \space of \space me: \space music \space ofc!}$
+
+${\color{#e3332c}\space some \space of \space the \space most \space lovely \space ones:}$
 
 <div id="header" align="center">
 
