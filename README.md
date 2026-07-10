@@ -30,6 +30,12 @@ ${\color{#e3332c}\space when \space there \space was \space no \space jury, \spa
 
 ${\color{#e3332c}\space hellow, \space stranger!}$
 
+are you bored of your dull n' aimless existance?
+let me entertain you fo' s bit!
+
+there is just some facts i carry inside me
+perhabs, you would like some
+
 ![image alt](https://github.com/inmess07/inmess07/blob/eb173d7afff670219a61ee9dad62544cb61e3f54/0aac0300c0eac551c30ae82969737afa.jpg)
 
 ![image](https://github.com/inmess07/inmess07/blob/e7ff5f8759db3ff5963478207a36852a156af4da/b379e0aa403ec2b1eb1a788889d17230.jpg)
