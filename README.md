@@ -31,13 +31,15 @@ ${\color{#e3332c}\space when \space there \space was \space no \space jury, \spa
 ${\color{#e3332c}\space hellow, \space stranger!}$
 
 ![image alt](https://github.com/inmess07/inmess07/blob/eb173d7afff670219a61ee9dad62544cb61e3f54/0aac0300c0eac551c30ae82969737afa.jpg)
-<p align="center">
-an important part of me: music ofc!
-  some of the most lovely ones:
-</p>
+</div>
+
+${\color{#e3332c}\space an \space important \space part \space of \space me: \space music \space ofc!}$
+  ${\color{#e3332c}\space some \space of \space the \space most \space lovely \space ones:}$
+
 <div id="header" align="center">
 
-![image](
+![image](https://github.com/inmess07/inmess07/blob/e7c150ee876fe24b2083afc89934c413f2f532f5/music1.png)
+![image](https://github.com/inmess07/inmess07/blob/e7c150ee876fe24b2083afc89934c413f2f532f5/music2.png)
 
 ${\color{#e3332c}\space my \space essence}$
 
