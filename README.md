@@ -31,8 +31,13 @@ ${\color{#e3332c}\space when \space there \space was \space no \space jury, \spa
 ${\color{#e3332c}\space hellow, \space stranger!}$
 
 ![image alt](https://github.com/inmess07/inmess07/blob/eb173d7afff670219a61ee9dad62544cb61e3f54/0aac0300c0eac551c30ae82969737afa.jpg)
-
+<p align="center">
+an important part of me: music ofc!
+  some of the most lovely ones:
+</p>
 <div id="header" align="center">
+
+![image](
 
 ${\color{#e3332c}\space my \space essence}$
 
