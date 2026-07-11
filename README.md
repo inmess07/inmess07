@@ -30,11 +30,13 @@ ${\color{#e3332c}\space when \space there \space was \space no \space jury, \spa
 
 ${\color{#e3332c}\space hellow, \space stranger!}$
 
-are you bored of your dull n' aimless existance?
-let me entertain you fo' s bit!
+${\color{#e3332c}\space are \space you \space bored \space of \space your \space dull \space n' \space aimless \space existance?}$
+${\color{#e3332c}\space let \space me \space entertain \space you \space fo' \space a \space bit!}$
 
-there is just some facts i carry inside me
-perhabs, you would like some
+${\color{#e3332c}\space there \space is \space just \space several \space facts \space i \space carry \space inside \space me}$
+${\color{#e3332c}\space perhabs, \space you \space would \space like \space some}$
+
+<span style="color: #e3332c;"><b>#1. ARE YOU HAPPY TO HAVE THE WORLD LIVING AROUND YOU?</b></span>
 
 ![image alt](https://github.com/inmess07/inmess07/blob/eb173d7afff670219a61ee9dad62544cb61e3f54/0aac0300c0eac551c30ae82969737afa.jpg)
 
