@@ -36,6 +36,7 @@ ${\color{#e3332c}\space let \space me \space entertain \space you \space fo' \sp
 ${\color{#e3332c}\space there \space is \space just \space several \space facts \space i \space carry \space inside \space me}$
 ${\color{#e3332c}\space perhabs, \space you \space would \space like \space some}$
 
+---
 
 ![image](https://github.com/inmess07/inmess07/blob/89a948b71573f5dc9e7d235bfa8fac11c0deb05a/Untitled237_20260712125322.png)
 
@@ -52,7 +53,11 @@ ${\color{#e3332c}\space this \space disorder \space called}$ ***akinetopsia*** (
 
 ![gif alt](https://github.com/inmess07/inmess07/blob/24ddb455dbb1f0c86ecd9861e715947f81ac9fad/GIF_20260712_114601_070.gif)
 
+![image](https://github.com/inmess07/inmess07/blob/9c506f90e53037b5ef080e92c1bed3b37cad847a/Untitled243_20260712150513.png)
+
 ![gif alt](https://github.com/inmess07/inmess07/blob/7d849e6f88fb6d0a762663e23397e6ffec994f6b/GIF_20260712_114805_953.gif)
+
+---
 
 #<img src="https://github.com/inmess07/inmess07/blob/31863bb3f4063e5136bc66930b27213758df7bb2/Untitled236_20260712140201_edit_374503381300886.png" width="20" style="display: inline-block; vertical-align: middle;" /> ***DO YOU KNOW WHAT EVEN A SUPERNOVA IS?***
 
@@ -64,7 +69,7 @@ ${\color{#e3332c}\space this \space disorder \space called}$ ***akinetopsia*** (
 
 ![image](https://github.com/inmess07/inmess07/blob/534cfd8b13472ee59ab0304501c235122580be8d/Untitled242_20260712145212.png)
 
-
+---
 
 
 </div>
