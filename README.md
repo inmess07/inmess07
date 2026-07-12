@@ -38,6 +38,12 @@ ${\color{#e3332c}\space perhabs, \space you \space would \space like \space some
 
 ***#1. ARE YOU HAPPY TO HAVE THE WORLD LIVING AROUND YOU?***
 
+
+
+
+
+
+
 ${\color{#e3332c}\space you \space see \space how \space everything \space is \space moving \space around \space you \space every \space day,}$
 ${\color{#e3332c}\space and \space you \space take \space it \space as \space a \space matter \space of \space course,}$
 ${\color{#e3332c}\space not \space even \space suspecting \space that \space somebody's \space literally \space deprived \space of \space this.}$
@@ -45,7 +51,6 @@ ${\color{#e3332c}\space not \space even \space suspecting \space that \space som
 ${\color{#e3332c}\space this \space sort \space of \space desease \space called \space *akinetopsia*; \space a \space "motion \space blindness".}$
 
 ![gif alt](https://github.com/inmess07/inmess07/blob/24ddb455dbb1f0c86ecd9861e715947f81ac9fad/GIF_20260712_114601_070.gif)
-
 
 
 
