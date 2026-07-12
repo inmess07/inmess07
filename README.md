@@ -38,7 +38,8 @@ ${\color{#e3332c}\space perhabs, \space you \space would \space like \space some
 
 ***#1. ARE YOU HAPPY TO HAVE THE WORLD LIVING AROUND YOU?***
 
-i think you pretty should be because some people aren't able to see surrounding moving.
+you see how everything is moving around you every day, and you take it as a matter of course, not even suspecting that somebody's literally deprived of this.
+this sort of desease called *akinetopsia (акинетопсия)*; a "motion blindness".
 
 ![image alt](https://github.com/inmess07/inmess07/blob/eb173d7afff670219a61ee9dad62544cb61e3f54/0aac0300c0eac551c30ae82969737afa.jpg)
 
