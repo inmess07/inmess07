@@ -60,7 +60,9 @@ ${\color{#e3332c}\space this \space disorder \space called}$ ***akinetopsia*** (
 
 ***supernova (сверхновая)*** — ${\color{#e3332c}\space is \space the \space biggest \space explosion \space of \space a \space star \space which \space is \space very \space beautiful \space :] }$
 
-![image](
+![gif](https://github.com/inmess07/inmess07/blob/9330618fc027d7af8fabee1446103a7af75d7384/GIF_20260712_143932_770.gif)
+
+![image](https://github.com/inmess07/inmess07/blob/534cfd8b13472ee59ab0304501c235122580be8d/Untitled242_20260712145212.png)
 
 
 
