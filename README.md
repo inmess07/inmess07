@@ -28,8 +28,7 @@ ${\color{#e3332c}\space when \space there \space was \space no \space jury, \spa
 
 ---
 
-![image](https://github.com/inmess07/inmess07/blob/1a90d2e22603289df168bcfcec85a799ade06b8d/Untitled239_20260712132410_edit_372237462494302.png)
-
+![image](https://github.com/inmess07/inmess07/blob/1ac1900a6cbbf61a18d1415fa48b51d7dc88e5dc/Untitled239_20260712133008.png)
 
 ${\color{#e3332c}\space are \space you \space bored \space of \space your \space dull \space n' \space aimless \space existance?}$
 ${\color{#e3332c}\space let \space me \space entertain \space you \space fo' \space a \space bit!}$
