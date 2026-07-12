@@ -38,12 +38,23 @@ ${\color{#e3332c}\space perhabs, \space you \space would \space like \space some
 
 ***#1. ARE YOU HAPPY TO HAVE THE WORLD LIVING AROUND YOU?***
 
-you see how everything is moving around you every day, and you take it as a matter of course, not even suspecting that somebody's literally deprived of this.
-this sort of desease called *akinetopsia (акинетопсия)*; a "motion blindness".
+${\color{#e3332c}\space you \space see \space how \space everything \space is \space moving \space around \space you \space every \space day, \space and \space you \space take \space it \space as \space a \space matter \space of \space course, \space not \space even \space suspecting \space that \space somebody's \space literally \space deprived \space of \space this.}$
+${\color{#e3332c}\space this \space sort \space of \space desease \space called \space *akinetopsia \space (акинетопсия)*; \space a \space "motion \space blindness".}$
 
-![image alt](https://github.com/inmess07/inmess07/blob/eb173d7afff670219a61ee9dad62544cb61e3f54/0aac0300c0eac551c30ae82969737afa.jpg)
+![gif alt](https://github.com/inmess07/inmess07/blob/24ddb455dbb1f0c86ecd9861e715947f81ac9fad/GIF_20260712_114601_070.gif)
 
-![gif alt](https://github.com/inmess07/inmess07/blob/e7ff5f8759db3ff5963478207a36852a156af4da/b379e0aa403ec2b1eb1a788889d17230.jpg)
+
+
+
+
+
+
+
+
+
+
+
+![gif alt](https://github.com/inmess07/inmess07/blob/7d849e6f88fb6d0a762663e23397e6ffec994f6b/GIF_20260712_114805_953.gif)
 
 </div>
 
