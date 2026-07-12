@@ -56,6 +56,15 @@ ${\color{#e3332c}\space this \space disorder \space called}$ ***akinetopsia*** (
 
 #<img src="https://github.com/inmess07/inmess07/blob/31863bb3f4063e5136bc66930b27213758df7bb2/Untitled236_20260712140201_edit_374503381300886.png" width="20" style="display: inline-block; vertical-align: middle;" /> ***DO YOU KNOW WHAT EVEN A SUPERNOVA IS?***
 
+![image](https://github.com/inmess07/inmess07/blob/733a81a26b10b414ae178322d4072dbc3067d55b/Untitled241_20260712141544.png)
+
+***supernova (сверхновая)*** — ${\color{#e3332c}\space is \space the \space biggest \space explosion \space of \space a \space star \space which \space is \space very \space beautiful \space :] }$
+
+![image](
+
+
+
+
 </div>
 
 
