@@ -36,7 +36,9 @@ ${\color{#e3332c}\space let \space me \space entertain \space you \space fo' \sp
 ${\color{#e3332c}\space there \space is \space just \space several \space facts \space i \space carry \space inside \space me}$
 ${\color{#e3332c}\space perhabs, \space you \space would \space like \space some}$
 
-<span style="color: #e3332c;"><b>#1. ARE YOU HAPPY TO HAVE THE WORLD LIVING AROUND YOU?</b></span>
+***#1. ARE YOU HAPPY TO HAVE THE WORLD LIVING AROUND YOU?***
+
+i think you pretty should be because some people aren't able to see surrounding moving.
 
 ![image alt](https://github.com/inmess07/inmess07/blob/eb173d7afff670219a61ee9dad62544cb61e3f54/0aac0300c0eac551c30ae82969737afa.jpg)
 
