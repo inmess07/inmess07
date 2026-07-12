@@ -52,17 +52,9 @@ ${\color{#e3332c}\space this \space disorder \space called}$ ***akinetopsia*** (
 
 ![gif alt](https://github.com/inmess07/inmess07/blob/24ddb455dbb1f0c86ecd9861e715947f81ac9fad/GIF_20260712_114601_070.gif)
 
-
-
-
-
-
-
-
-
-
-
 ![gif alt](https://github.com/inmess07/inmess07/blob/7d849e6f88fb6d0a762663e23397e6ffec994f6b/GIF_20260712_114805_953.gif)
+
+#<img src="https://github.com/inmess07/inmess07/blob/31863bb3f4063e5136bc66930b27213758df7bb2/Untitled236_20260712140201_edit_374503381300886.png" width="20" style="display: inline-block; vertical-align: middle;" /> ***DO YOU KNOW WHAT EVEN A SUPERNOVA IS?***
 
 </div>
 
