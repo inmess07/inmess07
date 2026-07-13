@@ -77,6 +77,9 @@ ${\color{#e3332c}\space yeah, \space me \space neigher \space :) }$
 
 ---
 
+*welp, and now to the dullest part of this page-*
+
+
 
 </div>
 
