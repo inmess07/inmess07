@@ -31,9 +31,11 @@ ${\color{#e3332c}\space when \space there \space was \space no \space jury, \spa
 ![image](https://github.com/inmess07/inmess07/blob/1ac1900a6cbbf61a18d1415fa48b51d7dc88e5dc/Untitled239_20260712133008.png)
 
 ${\color{#e3332c}\space are \space you \space bored \space of \space your \space dull \space n' \space aimless \space existance?}$
+
 ${\color{#e3332c}\space let \space me \space entertain \space you \space fo' \space a \space bit!}$
 
 ${\color{#e3332c}\space there \space is \space just \space several \space facts \space i \space carry \space inside \space me}$
+
 ${\color{#e3332c}\space perhabs, \space you \space would \space like \space some}$
 
 ---
