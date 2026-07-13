@@ -100,5 +100,7 @@ ${\color{#e3332c}\space some \space of \space the \space most \space lovely \spa
 
 ![image](https://github.com/inmess07/inmess07/blob/65e89be20ea56c48a87bc52ae910c73d83edbfa5/Untitled244_20260713131832.png)
 
+![image](https://github.com/inmess07/inmess07/blob/723824b76a37386f55686698dec740341e8e73d2/Untitled245_20260713140151.png)
+
 
 ![gif alt](https://github.com/inmess07/inmess07/blob/dcd78bbb70199eecf74c9ff9c18f57d9ac23d75a/escaping-abaddon.gif)
