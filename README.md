@@ -100,9 +100,15 @@ ${\color{#e3332c}\space some \space of \space the \space most \space lovely \spa
 
 ![image](https://github.com/inmess07/inmess07/blob/a47ce90f73382b34c94cc691c94a46fa23a345b9/Untitled237_20260712125322.png)
 
+![image](https://github.com/inmess07/inmess07/blob/48595653c68e0b7ecd15a6843942e579a125badc/Untitled245_20260713140707.png)
+
 ![image](https://github.com/inmess07/inmess07/blob/65e89be20ea56c48a87bc52ae910c73d83edbfa5/Untitled244_20260713131832.png)
 
 ![image](https://github.com/inmess07/inmess07/blob/723824b76a37386f55686698dec740341e8e73d2/Untitled245_20260713140151.png)
 
 
 ![gif alt](https://github.com/inmess07/inmess07/blob/dcd78bbb70199eecf74c9ff9c18f57d9ac23d75a/escaping-abaddon.gif)
+
+![image](https://github.com/inmess07/inmess07/blob/48595653c68e0b7ecd15a6843942e579a125badc/Untitled245_20260713140707.png)
+
+![image](https://github.com/inmess07/inmess07/blob/45ce4e75ce4c89a2106bd28ed3186633def265ee/Untitled245_20260713141012.png)
