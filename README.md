@@ -69,6 +69,12 @@ ${\color{#e3332c}\space this \space disorder \space called}$ ***akinetopsia*** (
 
 ![image](https://github.com/inmess07/inmess07/blob/534cfd8b13472ee59ab0304501c235122580be8d/Untitled242_20260712145212.png)
 
+#<img src="https://github.com/inmess07/inmess07/blob/c8f907b0f9119d9f71ef303a71d20bc6156aac32/Untitled236_20260713123030_edit_413210443853256.png" width="20" style="display: inline-block; vertical-align: middle;" /> ***BEYONG A VISIBLE EXISTANCE***
+
+${\color{#e3332c}\space have \space you \space ever \space heard \space 'bout \space Belbert \space Shreitz \space disorder? \space no?}$
+
+${\color{#e3332c}\space yeah, \space me \space neigher \space :) }$
+
 ---
 
 
