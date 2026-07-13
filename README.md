@@ -112,3 +112,8 @@ ${\color{#e3332c}\space some \space of \space the \space most \space lovely \spa
 ![image](https://github.com/inmess07/inmess07/blob/48595653c68e0b7ecd15a6843942e579a125badc/Untitled245_20260713140707.png)
 
 ![image](https://github.com/inmess07/inmess07/blob/45ce4e75ce4c89a2106bd28ed3186633def265ee/Untitled245_20260713141012.png)
+
+![image](https://github.com/inmess07/inmess07/blob/48595653c68e0b7ecd15a6843942e579a125badc/Untitled245_20260713140707.png)
+
+${\color{#9C9C9C}\space страничка \space носит \space статус \space вечного \space редактирования (*/_＼) }$
+
