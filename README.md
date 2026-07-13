@@ -75,7 +75,7 @@ ${\color{#e3332c}\space this \space disorder \space called}$ ***akinetopsia*** (
 
 ${\color{#e3332c}\space have \space you \space ever \space heard \space 'bout \space Belbert \space Shreitz \space disorder? \space no?}$
 
-${\color{#e3332c}\space yeah, \space me \space neigher \space :) }$
+${\color{#e3332c}\space yeah, \space me \space neither \space :) }$
 
 ---
 
