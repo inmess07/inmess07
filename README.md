@@ -79,6 +79,8 @@ ${\color{#e3332c}\space yeah, \space me \space neigher \space :) }$
 
 *welp, and now to the dullest part of this page-*
 
+![image](https://github.com/inmess07/inmess07/blob/475e0fc369f3f4a95b00e9a4767bf5c7d416b27d/Untitled239_20260713135251.png)
+
 
 
 </div>
